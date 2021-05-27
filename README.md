@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @akaraspec
-- 👀 I’m interested in Software Programing,Deep Learning,internet world and data 
+- 👋 Hi, I’m @akaraspec or ''Thom' I'm a DJ,Music Product,Frequency Scientist 
+- 👀 I’m interested in Software Programing,Deep Learning,internet world and data,technogy of electronic music
 - 🌱 I’m currently learning ... Create Software,NFT,Crypto Economic System,Games Greek,the Matrix x Geometric x Universe theories
 - 💞️ I’m looking to collaborate on ... Software Programmer,Peoples Who interest in Future,Funny,Make Value
 - 📫 How to reach me ... Whatapp,Gmail,PM
